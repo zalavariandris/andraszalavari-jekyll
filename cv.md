@@ -8,6 +8,12 @@ permalink: /cv/
 
 ## Solo Exhibitions 
 
+### 2021
+
+* The birds clap as they take off, Gallery Paks, Paks
+* Disciples of Dóra Maurer, David Kovats Gallery, London
+* Disciples of Dóra Maurer, HOXTON 253, London
+
 ### 2020
 
 * Depth is another Width, _Solo exhibition_, Kisterem, Budapest
