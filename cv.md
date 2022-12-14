@@ -27,11 +27,21 @@ permalink: /cv/
 
 ## Selected Group Exhibitions 
 
+### 2022
+
+* Rorsach, House of Arts, Veszprém
+
+* Disciples of Dóra Maurer, Hungarian Cultural Center, Brussels
+
 ### 2021
 
 * Disciples of Dóra Maurer, David Kovats Gallery, London
 
 * Disciples of Dóra Maurer, HOXTON 253, London
+
+## 2020
+
+* Patron, QContemporary, Budapest
 
 ### 2019
 
