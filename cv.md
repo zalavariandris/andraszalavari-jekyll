@@ -10,9 +10,7 @@ permalink: /cv/
 
 ### 2021
 
-* The birds clap as they take off, Gallery Paks, Paks
-* Disciples of Dóra Maurer, David Kovats Gallery, London
-* Disciples of Dóra Maurer, HOXTON 253, London
+* The birds clap as they take off, Gallery Paks, Paks (with Matyas Fusz and Krisztián Kristóf)
 
 ### 2020
 
@@ -28,6 +26,12 @@ permalink: /cv/
 
 
 ## Selected Group Exhibitions 
+
+### 2021
+
+* Disciples of Dóra Maurer, David Kovats Gallery, London
+
+* Disciples of Dóra Maurer, HOXTON 253, London
 
 ### 2019
 
