@@ -39,7 +39,7 @@ permalink: /cv/
 
 * Disciples of Dóra Maurer, HOXTON 253, London
 
-## 2020
+### 2020
 
 * Patron, QContemporary, Budapest
 
